@@ -21,4 +21,4 @@ If you have any questions or concerns about our privacy policy, please do not he
 
 This Privacy Policy was last updated on February 2, 2023. 
 We may update this Privacy Policy from time to time, so please check back periodically for the most up-to-date information.
-Contact Information
+Contact Information: mahamedadelnaeem015@gmail.com
